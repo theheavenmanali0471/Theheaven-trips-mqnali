@@ -1,2 +1,2 @@
-# Theheaven-trips-mqnali
+# Theheaven-trips-manali
 The Heaven Trips Manali - Taxi Service, Travel &amp; Tour Packages in Himachal Pradesh
